@@ -1,1 +1,0 @@
-# flexible_management_methodologies
